@@ -1,0 +1,1 @@
+# iHeaDiary-Privacy-Policy
